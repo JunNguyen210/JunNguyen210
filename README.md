@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @JunNguyen210
+- 👋 Hi, I’m @JunielNguyen210
 - 👀 I’m interested in learning something new
 - 🌱 I’m currently learning on Agile, scrum...
 - 📫 How to reach me: my email - thuydung210@gmail.com
